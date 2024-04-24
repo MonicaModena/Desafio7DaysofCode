@@ -6,3 +6,8 @@ Fiquei muito animada e desejo completá-lo, pois no primeiro dia já percebi o q
 Desafio finalizado e foi um baita aprendizado! Após a conclusão inseri os dados em um relatório em Power BI. Clique e confira:
 
 
+https://github.com/MonicaModena/Desafio7DaysofCode/assets/57499150/c0b00186-97e1-4e1b-a3a4-1455ce2ffe27
+
+
+
+
